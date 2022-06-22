@@ -1,0 +1,1 @@
+Hosted GitHub link - https://randoski.github.io/Display-details/
